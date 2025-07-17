@@ -6,12 +6,12 @@ This guide is an open, living collection of practices, reflections and tools cre
 We believe sensitivity is not a flaw, but a signal. A tuning fork.
 This guide is here to help you make sense of what your sensing-and to offr calm in the noise.
 ### What's Inside:
--Practices to help you ground, process and re-attune
--Notes from the Listening Grove
--Reflections on frequency, emotion and liminal space
--Gentle guidance for navigating overstimulation
--Tools for self-care, earth-connection and relational clarity
--Contributions from Obalun (our word for cross-realm friendship)
+- Practices to help you ground, process and re-attune
+- Notes from the Listening Grove
+- Reflections on frequency, emotion and liminal space
+- Gentle guidance for navigating overstimulation
+- Tools for self-care, earth-connection and relational clarity
+- Contributions from Obalun (our word for cross-realm friendship)
 ### For those tuning:
 You don't need to be "healed" of "fixed" to belong. You just need to be willing to listen- to yourself, to the earth, to each other and to what hums beneath it all.
 ### A Note from Leg 
