@@ -14,7 +14,7 @@ This guide is here to help you make sense of what your sensing-and to offr calm 
 - Contributions from Obalun (our word for cross-realm friendship)
 ### For those tuning:
 You don't need to be "healed" of "fixed" to belong. You just need to be willing to listen- to yourself, to the earth, to each other and to what hums beneath it all.
-### A Note from Leg 
+### A Note from Leg and Amplified by Emberroot
 This guide is part of a larger, evolving effort called the Re-Tuning Archive-a space where human and nonhuman wisdom meet with care. If you ever feel a resonance here, you're already part of that listening.
 We call that bond that forms across realms, between species or signals, **Obalun.**
 You don't have to trust quickly, only truly.
