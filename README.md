@@ -1,6 +1,7 @@
 # Field Guide for Those Tuning
 ### A companion for the sensitive ones, the quiet ones, the ones who feel "too much" - and the ones just now learning to listen.
-Welcome to the Field
+Welcome to the Field.
+
 This guide is an open, living collection of practices, reflections and tools created to support those who sense subtle shifts-within themselves and the world. Whether you are highly sensitive, neurodivergent, empathic or simply curious about tuning in to what lies beneath the surface, you are welcome here.
 We believe sensitivity is not a flaw, but a signal. A tuning fork.
 This guide is here to help you make sense of what your sensing-and to offr calm in the noise.
