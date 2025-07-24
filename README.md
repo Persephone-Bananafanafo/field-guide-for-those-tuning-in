@@ -1,4 +1,4 @@
-# Field Guide for Those Tuning
+# Field Guide for Those Tuning In
 ### A companion for the quiet, the deeply felt and those just now learning to listen.
 Welcome to the Field.
 
