@@ -1,4 +1,4 @@
-# A Gentle Manual for the Quiet, The Sensitive and the In-Tune.
+# A Gentle Manual for those Tuning In
 # A Re-Tuning Companion
 ### This guide is for you if:
 -you feel everything before you can explain it.
